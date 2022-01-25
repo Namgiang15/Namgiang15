@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Namgiang15
-- 👀 I’m interested in Vietnam Vietnam
+- 👀 I’m interested in Vietnam
 - 🌱 I’m currently learning IN H.A.S school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
